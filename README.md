@@ -1,6 +1,6 @@
 schlug·gard
 [ˈschlʌɡəd]
-noun
+noun - 
 a lazy, schluggish person:
 "I'm waiting for those schluggards to bring my steak"
 *just spelled wrong*
